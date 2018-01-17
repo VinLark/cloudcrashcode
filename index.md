@@ -2,6 +2,6 @@ A iOS Crash Code For iOS 8.3 - 11.2.2 Use at own risk
 The codes used where effiective power blake the rainbow flag and a bunch of zeros
 This Code was made just for fun and should not be done to anyone you don't know 
 
-Link To Crash Code https://pastebin.com/xjmFcwBW
+Link To Crash Code https://pastebin.com/z20webQe
 
 Link To iMessage Fix https://vincedes3.com/save.html
