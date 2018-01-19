@@ -6,6 +6,5 @@ Link To Crash Code https://pastebin.com/9jiAwSTH
 
 Link To iMessage Fix https://vincedes3.com/save.html
 
-Link To Longer and more Dangerous Code https://pastebin.com/raw/iFJB7CAK
-
+Link To Longer and more Dangerous Code https://pastebin.com/raw/cFzG11Te
 Code is still being worked on
